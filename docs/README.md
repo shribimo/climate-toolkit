@@ -1,4 +1,4 @@
-# Climate Reporting Toolkit
+# Nickel Mining and Smelting Journalist' Toolkit
 
-Welcome to the Climate Reporting Toolkit for Indonesia.
+Welcome to the Nickel Mining and Smelting Journalist' Toolkit for Indonesia.
 
